@@ -1,5 +1,5 @@
 <p align="center">
-✨ welcome to fujoland. this github is for pt, have some blinkies and old men ✨
+🌈🌸✨ welcome to fujoland. this github is for pt, have some blinkies and old men ✨🌸🌈
 </p>
 
 ![image](https://external-media.spacehey.net/media/s3F0-Ip_WCyJaXpfEmKYzlIKMQnak0rDXWgmms7XFq40=/https://cur.glitter-graphics.net/pub/3490/3490188sneg2mzxxu.gif) ![image](https://external-media.spacehey.net/media/sOpe7XCKym61jPMSkfhmrtDdGWj8bvtvTr_3lhFohqf4=/https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/0227008f-4c5e-4e15-a020-ab3200b7002a/d9dc961-61d472c5-4971-435e-9792-94a13017b409.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzAyMjcwMDhmLTRjNWUtNGUxNS1hMDIwLWFiMzIwMGI3MDAyYVwvZDlkYzk2MS02MWQ0NzJjNS00OTcxLTQzNWUtOTc5Mi05NGExMzAxN2I0MDkuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.PeY_Zx0f0Vn_hb1-vPXE2btTR0md8VPXT8PNczhgUX8)
